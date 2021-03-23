@@ -48,5 +48,5 @@ Event Coverage (Photography)
 2. Saksham Bhushan (Same as above)
 
 Outreach
-1. Hrishikesh Pradip Kaulwar (Certificate Id -  DSC-IITBH-2019-2020-28, Date of Issue - March 23, 2021)
-2. Pratik Sanjay Patil (Certificate Id -  DSC-IITBH-2019-2020-29, Date of Issue - March 23, 2021)
+1. Hrishikesh Pradip Kaulwar (Certificate Id -  DSC-IITBH-2019-2020-27, Date of Issue - March 23, 2021)
+2. Pratik Sanjay Patil (Certificate Id -  DSC-IITBH-2019-2020-28, Date of Issue - March 23, 2021)
